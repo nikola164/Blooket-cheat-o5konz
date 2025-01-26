@@ -1,2 +1,2 @@
-# Blooket-cheat-o5konz
+use ane blooks # Blooket-cheat-o5konz
 Original o5kons hack
